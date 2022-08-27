@@ -12,7 +12,7 @@
 
 - 📫 How to reach me **saintklovus@gmail.com**
 
-- ⚡ Fun fact **I am the 2006 Forbes Person of the Year**
+- ⚡ Fun fact **I became Forbes and Times Person of the Year in 2006.**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
