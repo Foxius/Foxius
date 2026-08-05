@@ -8,7 +8,7 @@
 
 - 🌱 I’m currently learning **Java & JS**
 
-- 👯 I’m looking to collaborate on **social network or app for CRT**
+- 👯 I’m looking to collaborate on **social network плюс.space**
 
 - 💬 Ask me about **Python**
 
